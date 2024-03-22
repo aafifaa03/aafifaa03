@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @aafifaa03
-- 👀 I’m interested in codingand music!
+- 👀 I’m interested in coding and music!
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on anyone who interested!
 - 📫 How to reach me: You can email me at > puteriafifa78@gmail.com
